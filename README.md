@@ -1,2 +1,2 @@
 # sch2103_study
-for students of 2103 Moscow School
+for students of 2103 Moscow School Krivalsin A.
